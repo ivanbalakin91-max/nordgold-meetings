@@ -1,0 +1,1 @@
+# nordgold-meetings
